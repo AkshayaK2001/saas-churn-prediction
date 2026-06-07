@@ -193,7 +193,8 @@ Montclair State University
 ### Connect With Me
 
 - GitHub: https://github.com/AkshayaK2001
-- LinkedIn: *(Add your LinkedIn profile URL here)*
+- LinkedIn: www.linkedin.com/in/akshaya-kommu
+
 
 ---
 
